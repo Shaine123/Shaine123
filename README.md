@@ -1,6 +1,6 @@
 # Hi there, I'm Shaine! 👋
 
-![Banner Image](file:///C:/Users/User/Downloads/DALL%C2%B7E%202025-12-03%2019.01.58%20-%20A%20lively%20cartoon-style%20illustration%20of%20a%20person%20coding%20at%20a%20cozy%20desk.%20The%20character%20has%20a%20cheerful,%20focused%20expression,%20with%20stylized%20large%20eyes%20and%20.webp)
+![Banner Image](https://pin.it/3eBLPBE4V)
 
 ## About Me 🚀
 

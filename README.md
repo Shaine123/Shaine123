@@ -1,4 +1,4 @@
-<img width="626" height="351" alt="image" src="https://github.com/user-attachments/assets/abac9678-2b7b-4844-ade6-8d99fc723ae9" /># Hi there, I'm Shaine! 👋
+# Hi there, I'm Shaine! 👋
 
 ![Banner Image](https://i.pinimg.com/736x/c9/88/0a/c9880a8abf25f389be7154e8fee18270.jpg)
 
